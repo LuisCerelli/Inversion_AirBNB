@@ -69,7 +69,7 @@ Este mapa proporciona una visión general de la densidad de las propiedades disp
 <p align="center"; padding="10">
    <img src=https://github.com/LuisCerelli/Inversion_AirBNB/blob/main/06.png?raw=true>
 
-Queremos resaltar que este tipo de gráficas se pueden realizar para cualquier ciudad o territorio, según las necesidades e intereses de su grupo de inversión.
+Este tipo de gráficas se puede realizar para cualquier ciudad o territorio, según las necesidades e intereses de su grupo de inversión.
 
    
 
