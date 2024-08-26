@@ -21,7 +21,7 @@ En el cambiante panorama de la inversión, buscar oportunidades lucrativas **con
 
 Al comparar Airbnb con otras alternativas de inversión, como acciones, bonos o bienes raíces tradicionales, queda claro que Airbnb ofrece una combinación única de rendimiento y flexibilidad. Mientras que las acciones y los bonos están sujetos a la volatilidad del mercado, y los bienes raíces tradicionales requieren una inversión significativa y pueden tener plazos de retorno más largos, Airbnb proporciona una oportunidad para generar ingresos regulares con una inversión inicial razonable y una gestión relativamente sencilla.
 
-- ### ¿Por qué Airbnb? Aquí están algunas razones convincentes:
+- ### ***¿Por qué Airbnb?*** Aquí están algunas razones convincentes:
 
 La Mejor Forma de Invertir en Airbnb:
 
